@@ -1,2 +1,2 @@
 # adriantemplar-website
-Official website of Adrian Templar — Singer, songwriter and composer. Music humanly played.
+Official website of Adrian Templar — Songwriter and composer. Music humanly played.
